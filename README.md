@@ -99,6 +99,6 @@ Sharon Colson:
 * sharon.colson@gmail.com
 
 Darryl Connelly II:
-* Darryl.Connelly.II@gmail.com
+* DConnellyII.Tech@gmail.com
 * https://www.linkedin.com/in/DConnellyII/
 * https://github.com/DConnellyII
